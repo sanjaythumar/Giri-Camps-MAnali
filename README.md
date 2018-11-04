@@ -1,1 +1,1 @@
-# Giri-Camps-MAnali
+# Giri-Camps-Manali
